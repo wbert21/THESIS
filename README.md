@@ -1,2 +1,2 @@
 # THESIS
-Nothing
+Drop ideas and the current project 
